@@ -1,0 +1,1 @@
+Dying Star is a spacefaring roleplaying video game in development by James Bearss
